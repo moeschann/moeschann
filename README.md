@@ -1,3 +1,6 @@
+<p align="center">
+<img width="2048" height="327" alt="tumblr_ab55f280e762b9b1e8037e492924db67_7d7b51ed_2048" src="https://github.com/user-attachments/assets/e30933c6-2eb6-4660-9bda-f89d76620ffc" />
+</p>
 <br>
 <br>
 <p align="center">
@@ -25,3 +28,6 @@ my boyfriend!!!
 </p>
 <br>
 <br>
+<p align="center">
+<img width="2048" height="327" alt="tumblr_ab55f280e762b9b1e8037e492924db67_7d7b51ed_2048" src="https://github.com/user-attachments/assets/e30933c6-2eb6-4660-9bda-f89d76620ffc" />
+</p>
