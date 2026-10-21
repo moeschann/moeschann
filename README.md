@@ -4,11 +4,6 @@
 <br>
 <br>
 <p align="center">
-<img width="100" height="100" alt="tumblr_e795e0caefbaf96d4a328803384c7962_5712e76d_250" src="https://github.com/user-attachments/assets/f4f4cff6-0c50-4688-bfb7-1a9d9269cbc6" />
-<img width="99" height="56" alt="tumblr_46ef4681ee8889699f9a0c8670731a4a_4c8a2df6_100" src="https://github.com/user-attachments/assets/f419444f-1dae-4c3a-b6d9-284fa5bd9c93" />
- <img width="100" height="100" alt="tumblr_e011ae4abddf7025f295c0ddb0dd29dd_7d70959a_250" src="https://github.com/user-attachments/assets/49668460-7206-4767-9416-6cce8f5339dc" />
- </p>
-<p align="center">
 <img width="498" height="278" alt="among-us-among-us-tv-series" src="https://github.com/user-attachments/assets/36f3f80a-f2c5-4834-a27c-c67071ed28ac" />
 </p>
  <p align="center">
