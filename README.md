@@ -6,8 +6,11 @@
 </p>
 <br>
 <p align="center">
-"BE AWARE OF GNB LARPER RIGHT HERE ! SKIN STEALING BTW BTW BTW BE CAREFUL THEYRE LARPING G&B AS WELL PLSPLS"
-how do you larp a FREE game on roblox while stealing someones WHOLE g&b oc because the style is appealing ??? 💀
+" ! spreading awareness of this person ! copying ponies and claims to be theirs while stalking certain people because no way this person is gen larping characters to cosplay "
+<br>
+<br>
+ IMAGINE larping FREE games like guts & blackpowder on roblox ??? BECAUSE HOW ? and COPYING someones WHOLE G&B OC because the style is good ? also stalking other people to copy is IN-SANE 😂😂💀 unoriginal 🥺
+<br>
 <br>
 <br>
 <br>
