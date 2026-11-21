@@ -6,10 +6,7 @@
 </p>
 <br>
 <p align="center">
-" ! spreading awareness of this person ! copying ponies and claims to be theirs while stalking certain people because no way this person is gen larping characters to cosplay "
-<br>
-<br>
- IMAGINE larping FREE games like guts & blackpowder on roblox ??? BECAUSE HOW ? and COPYING someones WHOLE G&B OC because the style is good ? also stalking other people to copy is IN-SANE 😂😂💀 unoriginal 🥺
+g&b larper AND skin stealer (or larper in general)
 <br>
 <br>
 <br>
