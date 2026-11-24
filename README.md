@@ -12,13 +12,17 @@ g&b larper AND skin stealer (or larper in general)
 <br>
 <br>
 <p align="center">
-<img width="498" height="279" alt="໋݂ ֯ ݂ @ petmaxxing ശ ,֢" src="https://github.com/user-attachments/assets/b8b08209-a0ff-4210-a3d8-355940313a35" />
+ <img width="448" height="664" alt="image" src="https://github.com/user-attachments/assets/caba27d5-0580-4158-8f63-32c76d24ca98" />
+</p>
+<p align="center">
+creds to @Hirashinji
 </p>
 <br>
 <br>
 <br>
+<br>
 <p align="center">
-💛 " 8/13/2026 "
+❤️ " 8/13/2026 "
 </p>
 <br>
 <br>
