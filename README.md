@@ -12,7 +12,7 @@ g&b larper AND skin stealer (or larper in general)
 <br>
 <br>
 <p align="center">
- <img width="448" height="664" alt="image" src="https://github.com/user-attachments/assets/caba27d5-0580-4158-8f63-32c76d24ca98" />
+ <img width="348" height="464" alt="image" src="https://github.com/user-attachments/assets/caba27d5-0580-4158-8f63-32c76d24ca98" />
 </p>
 <p align="center">
 creds to @Hirashinji
